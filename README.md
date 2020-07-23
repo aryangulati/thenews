@@ -1,2 +1,2 @@
 # thenews
-The News 💩
+The News😃
